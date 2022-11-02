@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JaCynthiaM
+- 👀 I’m interested in carpentry
+- 🌱 I’m currently learning about coding
+- ♏️ I'm a October baby!!
